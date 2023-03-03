@@ -1,0 +1,1 @@
+# encuadre.foto
